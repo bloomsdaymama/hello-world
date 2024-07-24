@@ -1,4 +1,4 @@
 hello-world
 ==============
 
-I am a native Los Angelian, currently living in Las Vegas, Nevada. I love to travel, photograph street art, and drink flat whites. I am "owned" by a Miniature Dachshund named Rufus and, previously, a Maine Coon cat named Izzy (RIP).
+Traveler, dreamer, writer, and someone that (still) believes in the power of good. Currently living in the desert Southwest and loving it.
